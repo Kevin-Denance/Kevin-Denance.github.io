@@ -9,7 +9,7 @@ A bit more about who I am:
 🌍 The Global Explorer: Traveling across continents, especially through Southeast Asia, has made me highly adaptable. Being trilingual is about more than just speaking languages. It’s about understanding different perspectives and cultures, which is a skill I use every day when bridging the gap between business needs and technical reality.
 🧠 The Lifelong Learner: I’m a proud autodidact by nature. I’m the type of person who will dive head-first into a new technology or a personal project just to see how it works. Whether I’m staying active outdoors or building a new data pipeline, I’m always in "learning mode."
 
-Why work with me?
+Why work with me? 
 I’m currently looking for new freelance opportunities and collaborations. I aim to bring the rigor of my corporate experience with brands like Accor and Michelin into a more agile, personal, and friendly partnership. I don't just provide a service. I provide a perspective that prioritizes your business goals above all else.
 I’m always up for a chat about data strategy, esports, or the best coffee spots in Toronto. If you have a project in mind or just want to say hi, let’s connect!
 
